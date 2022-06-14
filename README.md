@@ -15,4 +15,4 @@ I'm still pretty pretty green but I'm doing my best to learn as much as possible
 
 See you around! 🔥🚀
 
-[Linkedin](https://www.linkedin.com/)
+[<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white">](https://www.linkedin.com/)
