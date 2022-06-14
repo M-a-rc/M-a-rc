@@ -9,4 +9,8 @@ And I'm glad I did! Coding is cool!
 
 I'm still pretty pretty green but I'm doing my best to learn as much as possible!
 
+
+➡️ **Currently looking for a job or freelance missions** ⬅️
+
+
 See you around! 🔥🚀
