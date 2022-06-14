@@ -14,3 +14,5 @@ I'm still pretty pretty green but I'm doing my best to learn as much as possible
 
 
 See you around! 🔥🚀
+
+[Linkedin](https://www.linkedin.com/)
