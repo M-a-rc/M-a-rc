@@ -9,7 +9,7 @@ After working as an engineer for a while I realized that I wanted to become an e
 
 And I'm glad I did! Coding is cool!
 
-I'm now a freelancer and co-founder of <a href="https://eligia.fr">Eligia</a>
+I'm now a freelancer and co-founder of <a href="https://www.eligia.fr/">Eligia</a>
 
 See you around! 🔥🚀
 
